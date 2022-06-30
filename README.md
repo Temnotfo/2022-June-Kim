@@ -2,6 +2,4 @@
 
 Thanks to my pc for behaving!
 
-a local edit
-
-
+Both a local edit and Online edit
