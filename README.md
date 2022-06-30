@@ -1,3 +1,3 @@
 # 2022-June-Kim
 
-Hey Mo. 
+Thanks to my pc for behaving!
